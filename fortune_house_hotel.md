@@ -14,7 +14,7 @@ Transform Fortune House Hotel into Miami's premier destination for the intersect
 
 ### Event Overview 🌊
 
-**Date:** December 15, 2024  
+**Date:** December 9th, 2024  
 **Location:** Fortune House Hotel, Brickell  
 **Theme:** "Tides of Tomorrow"
 
